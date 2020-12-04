@@ -1,0 +1,1 @@
+Fried rice is a delicious way to cook rice, involving a variety of vegetables, seasoning, and most importantly, soy sauce.
